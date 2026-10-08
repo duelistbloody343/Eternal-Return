@@ -238,4 +238,4 @@ Eternal Return is available as a full free version with all features and updates
 Don't miss out on the adventure! **Download Eternal Return** today and join the battle for survival!
 
 ---
-**Last updated:** 2026-10-07 21:10:56 UTC
+**Last updated:** 2026-10-08 01:43:58 UTC
